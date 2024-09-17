@@ -10,3 +10,7 @@ speed,heading,light. Speed is how fast the bot going
 # September 10, 2024
 
 Frame tax
+
+#September 17, 2024 
+
+This is a free week 
