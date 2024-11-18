@@ -9,7 +9,7 @@ speed,heading,light. Speed is how fast the bot goin
 
 # September 10, 2024
 
-Frame tax
+Frane tax
 
 # September 17, 2024 
 
@@ -22,3 +22,6 @@ Because it can make 3d models for engingnears
 # November 13, 2024
 
 miss i suggest you give me a 100 in this class before i release my inner demons + balkan rage on you. I hope you know i drink still water and eat mangos every day. 
+
+# November 18, 2024
+
