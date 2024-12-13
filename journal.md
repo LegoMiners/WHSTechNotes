@@ -25,13 +25,9 @@ miss i suggest you give me a 100 in this class before i release my inner demons 
 
 # November 18, 2024
 
-# Novermber 21, 2024
-
-Test 
-
 # December 2, 2024
 
-MIss have u heard about the low taper fade meme by ninja????
+ai can be good or bad because it can help but if it makes a mistake then it could be really bad 
 
 # December 9, 2024
 
