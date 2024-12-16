@@ -32,3 +32,9 @@ ai can be good or bad because it can help but if it makes a mistake then it coul
 # December 9, 2024
 
 brainrot is bad and dont watch it because it will make u act sped. Digital media has had a postivie impact on my life because now i know the entire skibidi toilet lore. Skibidi toilet is an examaple of slop beacause it mentally harms little babys. yes don't watch it.
+
+
+# December 16, 2024
+
+Yes
+
