@@ -38,3 +38,6 @@ brainrot is bad and dont watch it because it will make u act sped. Digital media
 
 Yes
 
+# January 8, 2025
+
+Coding, Coding, Coding your own game, Gaming, no
