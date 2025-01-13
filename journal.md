@@ -41,3 +41,7 @@ Yes
 # January 8, 2025
 
 Coding, Coding, Coding your own game, Gaming, no
+
+# January 13, 2025
+
+The tech world is changing a lot, and now jobs that need skills in AI are becoming more important. People who learn how to work with machines and data will do really well, but those who don't might have a harder time finding jobs. To get ready for these changes, it's important to keep learning and meet new people who know about Ai.
