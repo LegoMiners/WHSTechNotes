@@ -44,4 +44,4 @@ Coding, Coding, Coding your own game, Gaming, no
 
 # January 13, 2025
 
-The tech world is changing a lot, and now jobs that need skills in AI are becoming more important. People who learn how to work with machines and data will do really well, but those who don't might have a harder time finding jobs. To get ready for these changes, it's important to keep learning and meet new people who know about Ai.
+My thoughts on this happening is that we all knew this day would come soon or later if we liked or not. and also i think it will give us limites because AI will soon take are jobs as a tech work or class student, i would prepare myself is by doing to start heading a different college career because AI will take over all of this because it advanced it has become
