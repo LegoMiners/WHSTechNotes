@@ -44,4 +44,4 @@ Coding, Coding, Coding your own game, Gaming, no
 
 # January 13, 2025
 
-My thoughts on this happening is that we all knew this day would come soon or later if we liked or not. and also i think it will give us limites because AI will soon take are jobs as a tech work or class student, i would prepare myself is by doing to start heading a different college career because AI will take over all of this because it advanced it has become
+My thoughts on this happening is that we all knew this day would come soon or later if we liked or not. and also i think it will give us limits because AI will soon take are jobs as a tech work or class student, i would prepare myself is by doing to start heading a different college career because AI will take over all of this because it advanced it has become
