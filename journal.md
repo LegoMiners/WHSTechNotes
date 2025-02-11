@@ -49,3 +49,13 @@ My thoughts on this happening is that we all knew this day would come soon or la
 # February 3, 2025
 
 just put the fries in the bag miss
+
+# February 11,2025
+
+| Shape    | Color | Count |
+| -------- | ----- | ----- |
+| Circle   |green  | 7     |
+| Square   |Yellow]|  5    |
+| Hexagon  |Brown  |   6   |
+| Triangle |Purple |    4  |
+| Octagon  |Red    |      3|
