@@ -59,3 +59,8 @@ just put the fries in the bag miss
 | Hexagon  |Brown  |   6   |
 | Triangle |Purple |    4  |
 | Octagon  |Red    |      3|
+
+
+# February 18, 2025
+
+Hinduism It's basically something the indians believe, that what happened in your old life determines your new life. In short term it's reincarnation, also it's karma. I learned it in World geography. I found it interesting because it is an example of Freedom of choice in Hinduism 
