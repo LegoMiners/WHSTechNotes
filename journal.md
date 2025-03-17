@@ -70,8 +70,18 @@ Hinduism It's basically something the indians believe, that what happened in you
 Technology can help adults and kids talk to each other better by keeping them updated on new slang words. for example teachers and counselors can use social media, popular apps, and even special websites that show current slang to understanding the way kids talks today. They could also use chatbots like helpful robots on apps that can chat with u to learn more about slang. Another fun idea is hold online discussions or workshops where kids can share their favorite slang terms, making it easyer for adults to connect with them and shows that they care about what kids have to say.
 Using slang translation tools in schools can have good sides and bad sides. on the bright sid these tools can help adults seem more friendly and understanding, which makes it easier for young people to talk open. But there’s a risk that if slang is taken too simple it could confuse students or make the adults seem less dumb . Also, while it might be helpful to teach some slang, trying to track all of it could makes it feel less normal and fun for kids. So, it might be better to keep learning about slang more casual and relaxed, letting both kids and adults learn from each other while making sure everyone is nice.
 
-# March 3, 2024
+# March 3, 2025
 
-I was respectful and cooperative, but ian was being the rudist person there, he was cussing at the sub and making her feel uneasy also he was touching me inappropriate i hope in furture he can be a better person also in my opintion i think her dad was good at the end of the day,If I could go back and change anything about our actions, I would encourage everyone to remind each other of the importance of being respectful and cooperative, even when we are having fun. Moving forward, I can personally take steps to ensure that any substitute who comes into our classroom feels respected and supported. This could include actively participating in class discussions, helping to guide my classmates in following instructions, and being friendly and welcoming to the substitute. By fostering a positive and respectful environment, we can contribute to a smoother experience for substitutes, making them feel valued and appreciated in our classroom.
+I was respectful and cooperative, but ian was being the rudist person there, he was cussing at the sub and making her feel uneasy also he was touching me inappropriate i hope in furture he can be a better person also in my opintion i think her was good at the end of the day,If I could go back and change anything about our actions, I would encourage everyone to remind each other of the importance of being respectful and cooperative, even when we are having fun. Moving forward, I can personally take steps to ensure that any substitute who comes into our classroom feels respected and supported. This could include actively participating in class discussions, helping to guide my classmates in following instructions, and being friendly and welcoming to the substitute. By fostering a positive and respectful environment, we can contribute to a smoother experience for substitutes, making them feel valued and appreciated in our classroom.
 
 clear that we could have been more respectful and cooperative towards the substitute teacher. While some of us may have been trying to have fun or joke around, it likely made their job more challenging. A substitute teacher often faces the added pressure of stepping into an unfamiliar environment and managing a group of students they don’t know well.
+
+# March 17, 2025
+
+During my time off, I used technology a lot. 
+I mostly used apps, games, and social media. 
+These technologies helped me stay connected and entertained. 
+Sometimes, they challenged me to learn new things. 
+I practiced problem-solving when I played games. 
+I also learned about how apps work and how to code a little. 
+This connects to what we learn in class about using technology in smart ways.
