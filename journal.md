@@ -85,3 +85,7 @@ Sometimes, they challenged me to learn new things.
 I practiced problem-solving when I played games. 
 I also learned about how apps work and how to code a little. 
 This connects to what we learn in class about using technology in smart ways.
+
+# March 18, 2025
+
+i did the code called "Hello World"
