@@ -89,3 +89,7 @@ This connects to what we learn in class about using technology in smart ways.
 # March 18, 2025
 
 i did the code called "Hello World"
+
+# March 24, 2025
+
+the ncaa basektball tornament, march madness is more exciting because of technology. AI tries to predict winners but the best part is the close games and the unexpected win. technology also allows us to talk to people about the games and gives more interactiveness.
