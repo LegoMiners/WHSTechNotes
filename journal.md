@@ -97,3 +97,7 @@ the ncaa basektball tornament, march madness is more exciting because of technol
 # April 2, 2025
 
 i did dance party in coding
+
+# April 7, 2025
+
+because AI can with people that learn diffenterly and they can simply down for someone that slow and the best tool is the feature to simply it for people and i would USE IT TOO
