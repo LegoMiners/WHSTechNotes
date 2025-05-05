@@ -101,3 +101,10 @@ i did dance party in coding
 # April 7, 2025
 
 because AI can with people that learn diffenterly and they can simply down for someone that slow and the best tool is the feature to simply it for people and i would USE IT TOO
+
+# May 5, 2025
+
+because it makes people think gorillas aren't dangerous.  This shows how silly things can spread online even if they're not true or safe.  We should think carefully about what we see online.
+
+
+
