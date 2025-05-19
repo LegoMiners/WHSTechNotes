@@ -108,7 +108,8 @@ because it makes people think gorillas aren't dangerous.  This shows how silly t
 
 # May 19, 2025
 
-i am 10000% ready for summer because i been working so hard this year and i been locked in and i am ready to trool all weeked 
+i am 10000% ready for summer because i been working so hard this year and i been locked in and i am ready to trool all weeked .
+miss do u agree we should bring back the chopped chin meme, the whats a father meme, the locked in ninja meme, and the druski dance meme, and the ts pmo meme? what about vexbolts do u agree he shouldve made it to 2025
 
 
 
